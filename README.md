@@ -2,5 +2,7 @@
 
 Hello All
 
-cheferic here. I like tacos and video games and wanting to learn how things work. 
-I hope that people who read this are enjoying their day. 
+cheferic here. I like tacos and video games and learning how things work.
+I'm about to be 30 years old and I'm ready to live my life the way I always wanted to.
+
+I hope anybody who reads this are enjoying their day. 
